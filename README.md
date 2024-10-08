@@ -1,1 +1,1 @@
-building cool stuff on the web. always learning, always coding.
+building stuff on the web. always learning, always coding.
